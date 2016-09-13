@@ -1,2 +1,1 @@
-# test
-Test myKnowledge
+VimCrypt~01!к3o>▐>Ь╢╛l)\^8ис$≥;5Д⌡gюUз`╩е*Я⌡╪ МE'W┼GmAЪ┤р╦FYМы!йъОёjЧЭk7ЧtХ
